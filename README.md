@@ -11,7 +11,7 @@
 - I hope AI never becomes sentient
 - Guys I love Luis Miguel, please listen to his music
 
-- CRUZ AZUL!!! DALE MAUQINA!!!
+- CRUZ AZUL!!! DALE MAQUINA!!!
 - I love cruz azul
 - my life is cruz azul
 
