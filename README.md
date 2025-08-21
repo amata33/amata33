@@ -5,7 +5,15 @@
 
 - Sometimes the quietest people are the ones who speak the least
 - Sometimes I wanna throw the towel but then I ask myself: what am I gonna dry myself with?
-- 
+- rich people are called rich because they have a lot of money
+- If you are hispanic and like Fuerza Regida, Junior H, or Peso Pluma, I automatically don't like you
+- I might have zero social anxiety
+- I hope AI never becomes sentient
+- Guys I love Luis Miguel, please listen to his music
+
+- CRUZ AZUL!!! DALE MAUQINA!!!
+- I love cruz azul
+- my life is cruz azul
 
 
 - 🔭 I’m currently working on myself
