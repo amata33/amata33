@@ -2,17 +2,17 @@
 - I am looking for an Asian girlfriend (Chinese and Filipinas are prefered)
 - I'm Mexican but yk what they say, nothing is impossible
 - I'm tired of being bi so I'm tryna become tri (-lingual).
-<!--
-**amata33/amata33** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+- Sometimes the quietest people are the ones who speak the least
+- Sometimes I wanna throw the towel but then I ask myself: what am I gonna dry myself with?
+- 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+- 🔭 I’m currently working on myself
+- 🌱 I’m currently learning how to apply for college LOL
+- 👯 I’m looking to collaborate on code 
+- 🤔 I’m looking for help with trying to defend Ye
+- 💬 Ask me about my obsession wuth music
+- 📫 How to reach me: with your hand
+- 😄 Pronouns: he/him/his
+- ⚡ Fun fact: I don't like clankers
