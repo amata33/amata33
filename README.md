@@ -1,6 +1,7 @@
 ## My name is Aaron Mata (but I like it when you call me by my last name)
 - I am looking for an Asian girlfriend (Chinese and Filipinas are prefered)
 - I'm Mexican but yk what they say, nothing is impossible
+- I'm tired of being bi so I'm tryna become tri (-lingual).
 <!--
 **amata33/amata33** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
