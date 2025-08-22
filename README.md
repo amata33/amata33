@@ -2,7 +2,6 @@
 - I am looking for an Asian girlfriend (Chinese and Filipinas are prefered)
 - I'm Mexican but yk what they say, nothing is impossible
 - I'm tired of being bi so I'm tryna become tri (-lingual).
-
 - Sometimes the quietest people are the ones who speak the least
 - Sometimes I wanna throw the towel but then I ask myself: what am I gonna dry myself with?
 - rich people are called rich because they have a lot of money
@@ -20,6 +19,7 @@
 - 🌱 I’m currently learning how to apply for college LOL
 - 👯 I’m looking to collaborate on code 
 - 🤔 I’m looking for help with trying to defend Ye
+- ![kanye-dance](https://github.com/user-attachments/assets/fe253a36-8352-4acb-80af-f0bf31cd2a44)
 - 💬 Ask me about my obsession wuth music
 - 📫 How to reach me: with your hand
 - 😄 Pronouns: he/him/his
