@@ -9,6 +9,7 @@
 - I might have zero social anxiety
 - I hope AI never becomes sentient
 - Guys I love Luis Miguel, please listen to his music
+<img width="658" height="878" alt="image" src="https://github.com/user-attachments/assets/59f9700f-f312-421f-aa49-938645c60df0" />
 
 - CRUZ AZUL!!! DALE MAQUINA!!!
 - I love cruz azul
