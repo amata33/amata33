@@ -4,6 +4,9 @@
 
 ![ye-tongue](https://github.com/user-attachments/assets/c2a1ad4e-04f5-4223-a289-f3ac2ddf5924)
 
+![kanye-west-vultures](https://github.com/user-attachments/assets/3fb31998-b964-46ed-80f4-f9e8ce7ba75d)
+
+
 - I'm tired of being bi so I'm tryna become tri (-lingual).
 - Sometimes the quietest people are the ones who speak the least
 - Sometimes I wanna throw the towel but then I ask myself: what am I gonna dry myself with?
