@@ -28,13 +28,19 @@
 
 ![cruz-azul-campeon-concacaf-champions](https://github.com/user-attachments/assets/db23bf97-6583-4722-ae63-ad2124d3e39c)
 
+- I also love Los Temerarios (Did yk the lead singer is a Cruz Azul fan? 😲)
 
+![ab67616d0000b273c0dc05e2947081840e461e69](https://github.com/user-attachments/assets/93d4f66f-0926-4853-9b55-616c1fd7dc9a)
+
+- This album is so good YOU MUST LISTEN TO IT
+
+  
 - 🔭 I’m currently working on myself
 - 🌱 I’m currently learning how to apply for college LOL
 - 👯 I’m looking to collaborate on code 
 - 🤔 I’m looking for help with trying to defend Ye
 - ![kanye-dance](https://github.com/user-attachments/assets/fe253a36-8352-4acb-80af-f0bf31cd2a44)
-- 💬 Ask me about my obsession wuth music
+- 💬 Ask me about my obsession with music
 - 📫 How to reach me: with your hand
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: I don't like clankers
