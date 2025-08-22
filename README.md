@@ -9,7 +9,7 @@
 - I might have zero social anxiety
 - I hope AI never becomes sentient
 - Guys I love Luis Miguel, please listen to his music
-![41-year-old-rapper](https://github.com/user-attachments/assets/b41a2802-bd5e-4e20-9373-886c53f6f535)
+- ![41-year-old-rapper](https://github.com/user-attachments/assets/b41a2802-bd5e-4e20-9373-886c53f6f535)
 
 
 
