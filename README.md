@@ -22,6 +22,7 @@
 - my life is cruz azul
 
 <img width="225" height="225" alt="download" src="https://github.com/user-attachments/assets/92f7e627-bee3-4273-b07b-4a9c491c97d1" />
+
 ![cruz-azul-campeon-concacaf-champions](https://github.com/user-attachments/assets/db23bf97-6583-4722-ae63-ad2124d3e39c)
 
 
